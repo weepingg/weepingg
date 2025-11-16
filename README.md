@@ -19,3 +19,5 @@ $\texttt{\color{#D0D0D0}   ‧₊˚♪ 𝄞₊˚⊹  }$ [sp](https://kiiiin.stra
 $\texttt{\color{#D0D0D0}   ‧₊˚♪ 𝄞₊˚⊹  }$ [wip sp](https://thantophobiaaa.straw.page/) $\texttt{\color{#D0D0D0}   ‧₊˚♪ 𝄞₊˚⊹  }$
 
 ![](https://files.catbox.moe/wzh8bi.gif)
+
+![](https://files.catbox.moe/lncg2o.png)
