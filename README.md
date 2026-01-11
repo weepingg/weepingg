@@ -1,12 +1,12 @@
 <div align="center">
 
-![visitors](https://visitor-badge.laobi.icu/badge?page_id=silver-locket.stars&left_color=black&right_color=lightgrey&left_text=SEEN-THIS-ANGEL?)
+![visitors](https://visitor-badge.laobi.icu/badge?page_id=weepingg.stars&left_color=black&right_color=lightgrey&left_text=SEEN-THIS-ANGEL?)
 
 ![](https://files.catbox.moe/vrcg4x.png)
 
 ![you make me feel like a FOOL](https://files.catbox.moe/5thveu.png)
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=C3C3C3&vcenter=true&width=435&lines=im+your+coquette!;dont+you+forget!)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&duration=3000&pause=100&color=C3C3C3&vcenter=true&width=435&lines=im+your+coquette!;dont+you+forget!)](https://git.io/typing-svg)
 
 ![](https://files.catbox.moe/4flo2d.gif)
 
